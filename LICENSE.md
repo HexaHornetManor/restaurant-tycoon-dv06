@@ -1,4 +1,4 @@
-#  
+#  ultimate restaurant tycoon 3 Scripts is the best restaurant tycoon 3 Script, featuring no clip and auto-collect. Safe and powerful for all your needs.
 
 
 
